@@ -15,7 +15,7 @@ Công dụng: Chữa sốt cao ở người lớn, kinh giật ở trẻ em
 
 Cách dùng, liều lượng: 1-2g một ngày, dạng thuốc sắc kết hợp với các vị thuốc khác.
 
- Toàn thân cây tre từ gốc đến ngọn đều là vị thuốc quý nhưng không hiếm.
+Toàn thân cây tre từ gốc đến ngọn đều là vị thuốc quý nhưng không hiếm.
 
 Tầm gửi cây tre: tầm gửi cây tre kết hợp với dây thìa canh, lá cây Cúc mẳn đun lấy nước đem nấu chung với tụy lợn để chữa bệnh đường huyết
 
