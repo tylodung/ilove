@@ -13,9 +13,13 @@ Củ tam thất chữa bệnh hiệu quả,  Tam thất Tên thuốc: Radix Noto
 
 Tam Thất Bắc Trồng ở Hoàng liên Sơn, trung quốc,  xét về dược tính thì tam thất trung quốc tốt hơn tam thất hoàng liên sơn, nhiều người sợ bị tẩm thuốc điều này quý khách hoàn toàn yên tâm bởi hàng nguyên củ không sợ bị tẩm thuốc.
 
-Tên khoa học: Tam Thất Panax pseudo-ginseng (Burk) Họ Ngũ Gia Bì (Araliaceae)
+**Tên khoa học:**
 
-Thành phần hóa học: Củ Tam Thất có các chất như Acid amin, hợp chất có nhân Sterol, đường, các nguyên tố Fe, Ca và đặc biệt là 2 chất Saponin: Arasaponin A, Arasaponin B. Saponin trong tam thất ít độc.
+Tam Thất Panax pseudo-ginseng (Burk) Họ Ngũ Gia Bì (Araliaceae)
+
+**Thành phần hóa học:**
+
+Củ Tam Thất có các chất như Acid amin, hợp chất có nhân Sterol, đường, các nguyên tố Fe, Ca và đặc biệt là 2 chất Saponin: Arasaponin A, Arasaponin B. Saponin trong tam thất ít độc.
 
 Lâu nay, nhân dân ta vẫn truyền nhau dùng tam thất để chữa bệnh, nhưng phần lớn chưa hiểu hết công dụng của nó, sau đây tôi xin được giới thiệu các tác dụng của Củ tam thất để sử dụng cho hiệu quả và áp dụng cho từng bệnh.
 
@@ -23,11 +27,11 @@ Tam Thất  là một trong những vị thuốc có tác dụng nhiều mặt, 
 
 Theo Đông y Tam Thất có vị ngọt hơi đắng, tính ôn, có tác dụng hóa ứ, cầm máu, tiêu sưng, giảm đau. Trong thời gian dùng tam thất để cầm máu, bệnh nhân không được sử dụng gừng, tỏi và các chế phẩm có gừng, tỏi.
 
-Công dụng củ tam thất
+**Công dụng củ tam thất**
 
 Theo Dược điển Việt Nam, Tam Thất   dùng trị thổ huyết, băng huyết, rong kinh, sau khi đẻ huyết hôi không ra, ứ trệ đau bụng, kiết lỵ ra máu, lưu huyết, tan ứ huyết, sưng tấy, thiếu máu nặng, người mệt mỏi, hoa mắt, chóng mặt, nhức đầu, ít ngủ
 
-Theo y học hiện đại, Tam Thất Bắc  có các tác dụng sau:
+**Theo y học hiện đại, Tam Thất Bắc có các tác dụng sau:**
 
 - Cầm máu, tiêu máu, tiêu sưng: Chữa các trường hợp chảy máu do chấn thương (kể cả nội tạng), tiêu máu ứ (do phẫu thuật, va dập gây bầm tím phần mềm).
 
@@ -43,14 +47,8 @@ Gần đây,Tam Thất Bắc  được dùng trong một số trường hợp (m
 
 Theo tài liệu nước ngoài, Tam Thất Bắc  có tác dụng giúp lưu thông tuần hoàn máu, giảm lượng Cholesterol trong máu, hạ đường huyết, kích thích hệ miễn dịch, ức chế vi khuẩn và siêu vi khuẩn, chống viêm tấy giảm đau… được dùng trong các trường hợp huyết áp cao, viêm động mạch vành, đau nhói vùng ngực, đường huyết cao, các chấn thương sưng tấy đau nhức khớp xương đau loét dạ dày tá tràng, trước và sau phẫu thuật để chống nhiễm khuẩn và chóng lành vết thương, chữa những người kém trí nhớ, ăn uống kém, ra mồ hôi trộn, lao động quá sức.
 
-Phụ nữ có thai không được uống Tam Thất
-
-Tam thất bắc chữa ung thư
-
-Củ tam thất bắc hoạt huyết
-
 Củ tam thất thường được sử dụng trong trường hợp chữa bệnh, cầm máu, củ tam thất có tác dụng phòng trống bệnh hiệu quả hơn là chữa bệnh chính vì thế sử dụng tam thất thường xuyên giúp nâng cao sức khỏe, phòng tránh bệnh.
 
-Cách sử dụng tam thất nguyên củ.
+**Cách sử dụng tam thất nguyên củ**
 
 Tam thất củ ngâm vào nước khoảng 1 tiếng sẽ mềm ra sau đó dùng dao sắt nhỏ đổ mật ong vào để trưng để sử dụng.
