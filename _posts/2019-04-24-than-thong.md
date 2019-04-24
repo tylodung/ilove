@@ -18,11 +18,11 @@ Thuộc họ Tiết dê - Menispermaceae.
 
 Người ta dùng thân cây của cây thần nông, tươi hoặc khô. Đây không phải là cây canhkina và không có chất quinin mặc dù mang tên dây ký ninh. Chú ý đừng nhầm lẫn.
  
-A. Mô tả cây
+** Mô tả cây**
 
  Ký ninh là một loại dây leo, thân rất xù xì, màu nâu nhạt, sống dai, dài tới 6-7m hay hơn. Thân non nhẵn, thân già màu nâu xám, rất xù xì nom như da cóc. Lá hình trái xoan ngược - dạng tim hay hình thuôn, mọc so le, mép nguyên, dài 8-12cm, rộng 5-6cm, có cuống ngắn, gầy. Hoa tập hợp thành 1-2 chùm mọc ở nách những lá đã rụng. Quả hình trứng, khi chín có màu vàng rồi đỏ, dài chừng 12 mm, có cơm quả dày, chứa 1 hạt màu đen.
  
-B. Phân bố thu hái và chế biến
+** Phân bố thu hái và chế biến**
 
 Dây ký ninh mọc hoang tại nhiều tỉnh miền bắc nước ta như Hoà Bình, Hà tây, Hà Giang, Tuyên Quang, Vĩnh Phúc, Phú Thọ. Nó còn mọc ôer Lào, Cămpuchia, Philipin.
 
@@ -30,13 +30,12 @@ Việc trồng cây ký sinh rất dễ dàng, chỉ cần cắt thân thành t�
 
 Để làm thuốc, dùng dây già thu hái quanh năm, rửa sạch, cắt thành đoạn ngắn chừng 0,5-1cm, thái mỏng dùng tươi hay phơi khô. Có thể tán bột, luyện viên cho dễ uống. Khi chế biến, có thể ngâm nước vo gạo hay nước tiểu trẻ em.
 
-C. Thành phần hoá học
+**Thành phần hoá học**
 
 Dây chứa một alcaloid là palmatin, hàm lượng 0,10% trọng lượng khô. Ngoài ra còn có một chất đắng với tỷ lệ 0,60-0,80% trọng lượng khô. Hoạt chất đắng này là một heterosid không kết tinh, không hút ẩm, khó thuỷ phân bởi các acid. Người ta còn gọi nó là picroretin hay picroretinosid.
  
-CÂY THẦN THÔNG, ĐỊA CHỈ BÁN DÂY THẦN THÔNG có một số công dụng hữu hiệu chữa mất ngủ kinh niên, cây thần thông găn chặn bạn khỏi bệnh đau đầu. 
 
-D. Công dụng và liều dùng
+** Công dụng và liều dùng**
 
 Tuy gọi là dây ký ninh, nhưng trong nhiều phần hoá học đã giới thiệu không có chất quinin. Mặc dù trong nhân dân nước ta cũng như một số nước khác, người ta vẫn dùng cây ký ninh trị sốt rét, trị sốt và làm thuốc bổ giúp sự tiêu hoá như cây canhkina.
 
@@ -52,13 +51,13 @@ Dây có có vị rất đắng, tính mát, có tác dụng chống chu kỳ tr
 
 Thường dùng trị cảm sốt, phát ban, sốt rét cơn, ho, tiêu hoá kém và tiêu mụn nhọt. Dùng ngoài lấy nước sắc rửa mụn nhọn lở loét. Lá nghiền nát dùng đắp lên các vết thương và đắp trị ghẻ. Ở Ấn Độ, người ta dùng trong suy yếu toàn thân.
  
-Chú thích:
+**Chú thích:**
 
-Ở  nước ta  còn một loại cây gần giống dây ký nin, gọi là dây thần nông. Được xác định tên khoa học là Tinospora cordifolia Miers. Thân ít xù xì hơn, là tròn hình tim hơn, quả dài hơn, cùng một công dụng như dây ký ninh.
+Ở nước ta còn một loại cây gần giống dây ký nin, gọi là dây thần nông. Được xác định tên khoa học là Tinospora cordifolia Miers. Thân ít xù xì hơn, là tròn hình tim hơn, quả dài hơn, cùng một công dụng như dây ký ninh.
 
 Dây thần thông dùng ngâm rượu khoảng 1kg ngâm với 3 lít rượu ngâm trong 1-2 tuân mỗi khi sử dụng chỉ dùng 1 ly mắt châu nhỏ.
  
-Công dụng dây thần thông
+**Công dụng dây thần thông**
 
 Cây thần thông ổn định đường huyết, sử dụng sau 1 thời gian bệnh sẽ ổn định
 
