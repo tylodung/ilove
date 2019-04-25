@@ -7,7 +7,7 @@ image: caydongrieng.jpg
 custom_excerpt: Cây dong riềng đỏ chữa tim mạch, bệnh mạch vành.
 ---
 
-Cây dong riềng đỏ chữa bệnh tim mạch, mạch vàng, dong riềng đỏ còn được gọi khoai đao, khương vu là một trong nhữn loại cây được trồng phổ biến ở vùng nông thôn nước ta
+Cây dong riềng đỏ chữa bệnh tim mạch, mạch vàng, dong riềng đỏ còn được gọi khoai đao, khương vu là một trong nhữn loại cây được trồng phổ biến ở vùng nông thôn nước ta.
 
 Cây dong riềng được trổng chủ yếu thu hoạch củ để phục vụ cho sản xuất miến dong và dùng để chăn nuôi, ngày nay dong riềng đỏ đươc sử dụng để chữa bệnh tim mạch khá hiệu quả.
 
@@ -15,7 +15,7 @@ Bệnh mạch vành hay xảy ra bắt đầu ở độ tuổi trung niên, ph�
 
  Sự phát triển mạnh mẽ của khoa học – công nghệ đã cho ra đời nhiều thuốc, phương tiện, kỹ thuật chữa bệnh tim mạch mới như thuốc hạ huyết áp, thuốc hạ mỡ máu, máy tim phổi, kỹ thuật tim mạch can thiệp… Song không phải bất cứ người dân nào cũng đủ điều kiện để tiếp cận với y học hiện đại, do bị hạn chế chi trả, nhận thức, địa lý… Chính vì vậy các bác sĩ, các nhà khoa học vẫn tiếp tục tìm kiếm các thảo dược tự nhiên có tác dụng chữa bệnh tim mạch tương tự như các glycozid trợ tim, coumarin, strophantin, thevetine .. đã tìm thấy trước đây. Ở Việt Nam, thuốc dân gian chữa mạch vành đã được các Đại Danh y Hoàng Đôn Hoà, Nguyễn Bá Tĩnh, Lê Hữu Trác sử dụng hàng trăm năm nay như lá hẹ, củ sắn dây, củ nghệ già, ngưu tất, bạch chỉ, dâm dương hoắc...
 
-Tác dụng cây dong riềng đỏ
+**Tác dụng cây dong riềng đỏ**
 
 Tháng 4 năm 2002, qua khảo sát sức khỏe tim mạch bằng ghi điện tim ở 89 người cao tuổi sinh sống tại Mường Cơi (thu cúc) và 91 trường hợp người cao tuổi ở Văn Quan (Lạng Sơn), các nhà khoa học thuộc Viện Y học Bản địa Việt Nam nhận xét thấy bà con ở Mường Cơi dùng Dong riềng đỏ làm thực phẩm thường nhật (Dong riềng đỏ không thể chế biến thành miến dong, có tỷ lệ mắc bệnh đau thắt ngực do thiếu máu cơ tim cục bộ rất thấp so với bà con ở Văn quan, nơi không dùng Dong riềng đỏ (sự khác biệt có ý nghĩa với p < 0,05). Các nhà khoa học của Viện tiếp tục nghiên cứu trên 112 người bệnh đau ngực được dùng dịch chiết Dong riềng đỏ có kiểm chứng lâm sàng và ghi điện tim, kết quả có 91% người bệnh hài lòng với điều trị, 58% có điện tim biến đổi theo hướng tích cực trong tuần đầu, 87% tuần tiếp theo. Đặc biệt có hai trường hợp sau đặt stent, một ca sau mổ bắc cầu vành ít có biến đổi trên điện tim nhưng cải thiện về lâm sàng là rõ rệt.
 
