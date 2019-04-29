@@ -7,13 +7,13 @@ image: cayphantadiep.jpg
 custom_excerpt: Phan tả diệp chữa bệnh tao bón hiệu quả, phan tả diệp có tác dụng giải độc gan, sổ độc gan, phan tả diệp sử dụng thường kết hợp với ngũ vị tử chữa bệnh gan.
 ---
 
-Phan tả diệp, tác dụng cây phan tả diệp, địa chỉ bán phan tả diệp chữa bệnh táo bón, bệnh gan Phan Tả Diệp   tên khoa học ( Folium Sennae) Cây Phan Tả Diệp được trồng nhiều ở miên trung.
+Phan tả diệp, tác dụng cây phan tả diệp, địa chỉ bán phan tả diệp chữa bệnh táo bón, bệnh gan Phan Tả Diệp, tên khoa học (Folium Sennae) Cây Phan Tả Diệp được trồng nhiều ở miên trung.
 
 Cây phan tả diệp được trồng tại miền trung số lượng ít chủ yếu là hàng nhập ở nước ngoài.
 
-Phan Tả Diệp là lá phơi hay sấy khô của cây Phan Tả Diệp lá hẹp Cassia Angustifolia Vahl hay cây Phan tả diệp lá nhọn Cassia Acutifolia đều thuộc họ Vang ( Cassalpiniaceae), được dùng làm thuốc từ thế kỷ 9 tại các nước Ả rập, đến thời kỳ cận đại mới truyền vào Trung quốc, có ghi trong sách Trung quốc Dược học đại tự điển, xuất bản năm 1935 cây Phan tả diệp mọc hoang và được trồng tại các nước nhiệt đới châu Phi, Aán độ ( Tây bắc và nam), vùng Ai cập và dọc lưu vực sông nil, Ở Trung quốc có đem giống về trồng ở đảo Vân nam. Ở nước ta chưa phát hiện cây này nên còn phải nhập của nước ngoài.
+Phan Tả Diệp là lá phơi hay sấy khô của cây Phan Tả Diệp lá hẹp Cassia Angustifolia Vahl hay cây Phan tả diệp lá nhọn Cassia Acutifolia đều thuộc họ Vang (Cassalpiniaceae), được dùng làm thuốc từ thế kỷ 9 tại các nước Ả rập, đến thời kỳ cận đại mới truyền vào Trung quốc, có ghi trong sách Trung quốc Dược học đại tự điển, xuất bản năm 1935 cây Phan tả diệp mọc hoang và được trồng tại các nước nhiệt đới châu Phi, Aán độ ( Tây bắc và nam), vùng Ai cập và dọc lưu vực sông nil, Ở Trung quốc có đem giống về trồng ở đảo Vân nam. Ở nước ta chưa phát hiện cây này nên còn phải nhập của nước ngoài.
 
-Tác dụng cây phan tả diệp
+**Tác dụng cây phan tả diệp**
 
 Tính vị qui kinh: Phan Tả Diệp, vị ngọt đắng, tính hàn, qui kinh Đại tràng Tác dụng và công dụng
 
@@ -27,7 +27,7 @@ Dùng dưới hình thức thuốc hãm, hoặc thuốc thụt. Ðể loại b�
 
 Quả cũng được dùng như lá sau khi loại hạt. Các sennosid A, B cũng được chiết xuất và dùng với liều 0,01 - 0,04g để làm thuốc nhuận tràng.
 
-Ghi chú
+**Ghi chú**
 
 Dược liệu là lá chét của 2 loài Phan Tả Diệp: Phan Tả Diệp Ấn Ðộ hay Tinnevelly hay  Phan tả diệp lá hẹp - Cassia angustifolia Vahl.  Phan tả diệp Khartoum hay Alexandrie thuộc Ai 
 
@@ -35,4 +35,4 @@ Cập hay Phan tả diệp lá nhọn - Cassia acutifolia Del., thuộc họ Van
 
 Phan tả diệp kêt hợp với ngủ vị tử để sử dụng chữa bệnh gan.
 
-Chú ý: người cơ thể yếu, phụ nữ có thai, thờ kỳ kinh nguyệt, đang cho con bú, dùng thận trọng. Dùng quá liều gây đau bụng, buồn nôn, nôn.
+**Chú ý:** người cơ thể yếu, phụ nữ có thai, thờ kỳ kinh nguyệt, đang cho con bú, dùng thận trọng. Dùng quá liều gây đau bụng, buồn nôn, nôn.
