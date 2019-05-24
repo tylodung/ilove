@@ -11,53 +11,49 @@ Hạt đình lịch dùng làm mặt nạ Đình lịch trị mụn nhọt hiệ
 
 Hạt đình lích làm sạch 30% ngay lần đắp mặt nạ lần đầu tiên.
 
-Đây là cách làm đẹp bằng thảo dược tự nhiên, sách mụn nhọt, trên gia mặt
-
-Xin giới thiệu về hạt đình lịch
-
 Cây thảo sống 2 năm, mọc hoang bắt đầu mùa xuân thì sinh lá mầm non, thân cao 18cm - 22cm, lá mọc cách hình trứng dài, hoặc hình viên chùy dài, không có cuống lá
 
-Xuất xứ: Bản Kinh.
+**Xuất xứ:** Bản Kinh.
 
-Tên khác: Đơn hao, Đại thất, Đại thích (Bản Kinh), Đình lịch, Cẩu tề (Biệt Lục), Đinh lạc, Công tề, Đế lực, Khổ thảo, Lương y chủy đầu (Hòa Hán Dược Khảo), Điềm đình lịch, Đình lịch tử (Trung Quốc Dược Học Đại Từ Điển).
+**Tên khác:** Đơn hao, Đại thất, Đại thích (Bản Kinh), Đình lịch, Cẩu tề (Biệt Lục), Đinh lạc, Công tề, Đế lực, Khổ thảo, Lương y chủy đầu (Hòa Hán Dược Khảo), Điềm đình lịch, Đình lịch tử (Trung Quốc Dược Học Đại Từ Điển).
 
-Tên khoa học: Draba nemorosa Lin. Var. Hebecarpa Ledeb.
+**Tên khoa học:** Draba nemorosa Lin. Var. Hebecarpa Ledeb.
 
-Họ khoa học: Cruciferae.
+**Họ khoa học:** Cruciferae.
 
-Mô tả: Cây thảo sống 2 năm, mọc hoang bắt đầu mùa xuân thì sinh lá mầm non, thân cao 18cm - 22cm, lá mọc cách hình trứng dài, hoặc hình viên chùy dài, không có cuống lá, có răng cưa thô, thân lá đều có lông nhỏ, mùa xuân thì nở hoa nhỏ màu vàng, hoa chùm, quả hạt là quả loại cải dài hình viên chùy, khi chín thì nứt ra, bên trong chứa rất nhiều chủng tử màu nâu xanh.
+**Mô tả:** Cây thảo sống 2 năm, mọc hoang bắt đầu mùa xuân thì sinh lá mầm non, thân cao 18cm - 22cm, lá mọc cách hình trứng dài, hoặc hình viên chùy dài, không có cuống lá, có răng cưa thô, thân lá đều có lông nhỏ, mùa xuân thì nở hoa nhỏ màu vàng, hoa chùm, quả hạt là quả loại cải dài hình viên chùy, khi chín thì nứt ra, bên trong chứa rất nhiều chủng tử màu nâu xanh.
 
-Địa lý: Cây mọc hoang và có nhiều ở Giang Tô, Sơn Đông, Hà Nam, Hiệp Tây, Hà Bắc. Chưa thấy ở Việt Nam.
+**Địa lý:** Cây mọc hoang và có nhiều ở Giang Tô, Sơn Đông, Hà Nam, Hiệp Tây, Hà Bắc. Chưa thấy ở Việt Nam.
 
-Thu hái, sơ chế: Trước và sau tiết Lập hạ. Cắt toàn cây đem về phơi trên chiếu, thừa lúc vỏ xác nứt ra lấy tay vết xuống, bỏ và xác, sàng xẩy tạp chất để nơi khô ráo cất dùng.
+**Thu hái, sơ chế:** Trước và sau tiết Lập hạ. Cắt toàn cây đem về phơi trên chiếu, thừa lúc vỏ xác nứt ra lấy tay vết xuống, bỏ và xác, sàng xẩy tạp chất để nơi khô ráo cất dùng.
 
-Phần dùng làm thuốc: Chủng tử (Semen drabae).
+**Phần dùng làm thuốc:** Chủng tử (Semen drabae).
 
-Mô tả dược liệu: Hạt (chủng tử) nhỏ bé, biểu hiện hình tròn chùy, hơi dẹt, dài chừng 1,5mm, bên ngoài biểu hiện màu nâu, không có phôi nhũ.
+**Mô tả dược liệu:** Hạt (chủng tử) nhỏ bé, biểu hiện hình tròn chùy, hơi dẹt, dài chừng 1,5mm, bên ngoài biểu hiện màu nâu, không có phôi nhũ.
 
-Bào chế:
+**Bào chế:**
 
 1- Bỏ Đình lịch vào với gạo nếp, sao vàng, khi nếp chín, bỏ gạo nếp đi, chỉ lấy Đình lịch ra dùng (Lôi Công Bào Chế Dược Tính Giải).
 
 2- Sao qua, chích mật hoặc sấy cách giấy.
 
-Tính vị: Vị cay đắng. Tính rất lạnh.
+**Tính vị:** Vị cay đắng. Tính rất lạnh.
 
-Quy kinh: Vào kinh Phế, Bàng quang.
+**Quy kinh:** Vào kinh Phế, Bàng quang.
 
-Tác dụng hạt đình lịch: Tả phế, hành thủy, tiêu thủng, trừ đờm, giảm ho, định suyễn.
+**Tác dụng hạt đình lịch:** Tả phế, hành thủy, tiêu thủng, trừ đờm, giảm ho, định suyễn.
 
-Chủ trị: Trị ho, suyễn do nhiều đờm. Phù thủng do thực chứng, xoang bụng đọng nước, tiêu tiểu không thông.
+**Chủ trị:** Trị ho, suyễn do nhiều đờm. Phù thủng do thực chứng, xoang bụng đọng nước, tiêu tiểu không thông.
 
-Liều dùng: 3-9g.
+**Liều dùng:** 3-9g.
 
-Kiêng kỵ: Phế Tỳ khí hư mà không có thực tà thì cấm dùng.
+**Kiêng kỵ:** Phế Tỳ khí hư mà không có thực tà thì cấm dùng.
 
 Ghét Bạch cương tàm, được Rượu thì tốt, Du bì làm sứ cho nó (Bản Thảo Kinh Sơ).
 
-Bảo quản: Để nơi khô ráo.
+**Bảo quản:** Để nơi khô ráo.
 
-Đơn thuốc kinh nghiệm: có hạt đình lịch
+**Đơn thuốc kinh nghiệm:** có hạt đình lịch
 
 + Trị phế ung, thở gấp không nằm được, chi ẩm: Đìch lịch (sao vàng), tán bột, trộn với mật làm thành viên, to bằng hạt đạn lớn, mỗi lần dùng Đại táo 20 quả, sắc với 3 thăng nước còn 2 thăng, cho 1 viên Đình lịch vào, sắc còn 1 thăng rồi uống (Đình Lịch Đại Táo Tả Phế Thang - Kim Quỹ Yếu Lược).
 
@@ -101,7 +97,7 @@ Bảo quản: Để nơi khô ráo.
 
 + Trị hông sườn ứ nước, bí đại tiện, tiểu ít ngắn.: Đình lịch, Hạnh nhân, Đại hoàng, Mang tiêu, mỗi thứ 15g, Cam toại 3g. Tán bột làm viên, mỗi lần 6g, ngày 2 lần với nước (Đại Hãm Hung Hoàn -  (Lâm Sàng Thực Dụng Trung Dược Thủ Sách).
 
-Phân biệt:
+**Phân biệt:**
 
 1- Không nên nhầm lẫn với Đình lịch Hygrophila phlomoides Nees. Thuộc họ Acanthaceae mà hạt thường dùng để bôi ghẻ.
 
@@ -111,7 +107,7 @@ Phân biệt:
 
 4- Ở Trung Quốc người ta còn dùng cây Đình lịch [Descurainia Sophia (L.) Webb]. Đó là cây thảo sống 1 năm hoặc 2 năm. Thân mọc thẳng cao tới 1m, phân nhánh ở phần trên. Lá sinh ở gốc xẻ 3, có cuống lá, thân sinh lá mọc cách, lá xẻ lông chim 2-3 lần, phiến xẻ hình dãi. Cụm hoa sinh ở đỉnh có hoa nhỏ màu vàng. Quả lại cải dài nhỏ. Chủng tử màu nâu đen hình viên chùy hoặc tròn dài. Dùng hạt như Đình lịch gọi là Đình lịch tử.
 
-SẠCH MỤN SAU 1 TUẦN CHỈ VỚI HẠT ĐÌNH LỊCH
+**SẠCH MỤN SAU 1 TUẦN CHỈ VỚI HẠT ĐÌNH LỊCH**
 
 Hạt đình lịch dùng làm mặt nạ đắp mặt hằng ngày sẽ giúp các bạn nữ có một làn da khỏe mạnh, sạch mụn chỉ sau 1 tuần mà không gây tái phát và tác dụng phụ.
 
@@ -130,11 +126,4 @@ Vết mụn nhọt sẽ khiến chúng ta đau đớn và nhức nhối vì sưn
 
 Mặc dù chưa có công trình nghiên cứu nào công bố về công dụng của cây đình lịch. Nhưng trên thực tế kiểm nghiệm, bài thuốc dân gian này quả thực đã mang lại hiệu quả và hoàn toàn yên tâm vì không gây tác dụng phụ, tính mát và làm vết mụn mủ nhanh lành.
 
-Cách sử dụng hạt đình lịch
 
-Đình lịch là một bài thuốc dân gian phổ biến và rất dễ sử dụng. Thảo dược Búpxanh sẽ chia sẻ cách sử dụng đơn giản nhất mà bạn có thể áp dụng ngay tại nhà:
-
-Điều trị mụn trứng cá: dùng hạt đình lịch đắp mặt nạ hàng ngày vào ban đêm. Làm đều đặn sau 1 tuần sẽ làm bong hết các cồi mụn, trả lại làn da sáng sạch.
-
-Điều trị mụn nhọt: dùng 100g hạt đình lịch ngâm nước cho đến khi hạt bung ra và có chất nhờn. Gạn nước, đánh nhuyễn và đắp lên vùng da bị mụn nhọt tầm 30 phút. Hoạt chất trong hạt đình lịch sẽ làm kích thích vết nhọt, làm vỡ miệng và bung mủ ra. Sau đó tiến hành xử lý mủ bằng bông y tế, cồn…Tiến hành lại bước nữa nếu thấy nhọt chưa sạch. Cần đảm bảo vệ sinh cho vùng mụn nhọt, tránh vi khuẩn xâm nhập và bụi bẩn.
-Hạt đình lịch Làm sạch mụn và trắng da: trộn 10ml nước khoáng, 5ml nước trà xanh nguyên chất và 3 muỗn đình lịch. Chờ hỗn hợp kết dính và bạn chỉ cần đắp lên mặt sau 3 -5 phút thì gỡ ra.

@@ -15,7 +15,7 @@ Kim Tiền Thảo còn gọi là mắt trâu, mắt rồng, vẩy rồng, có t�
 
 Kim Tiền Thảo là cây thảo, sống lâu năm, bò sát đất, dài khoảng 1m. Lá mọc so le, gồm 3 lá chét hình tròn, có lông. Hoa tự hình chùm, tràng hoa hình bướm, màu tía. Quả loại đậu, dài 14 - 16mm, chứa 4 - 5 hạt. Mọc hoang trên vùng đồi trung du, vùng núi.
 
-Tác dụng cây kim tiền thảo
+**Tác dụng cây kim tiền thảo**
 
 Kim Tiền Thảo có tác dụng thanh nhiệt, lợi thuỷ, tiêu sạn, giải độc, tiêu viêm; Lợi thuỷ, thông lâm, tiêu tích tụ. Chủ trị các chứng nhiệt lâm, thạch lâm, sỏi mật, hoàng đản, ung nhọt do nhiệt độ; Trị gan mật kết sỏi, sỏi thận, tiểu buốt, hoàng đản.
 
@@ -27,22 +27,16 @@ Nghiên cứu tác dụng dược lý của Kim Tiền Thảo cho thấy: Nướ
 
 Để điều trị cao huyết áp  dùng các vị thuốc đặc hiệu như hoè hoa, ba gạc, bạch đồng nữ, câu đằng, cúc hoa...
 
-CÔNG DỤNG Kim Tiền Thảo có tác dụng thanh nhiệt, lợi thuỷ, tiêu sạn, giải độc, tiêu viêm;
-
 Lợi thuỷ, thông lâm, tiêu tích tụ.
 
 Chủ trị các chứng nhiệt lâm, thạch lâm, sỏi mật, hoàng đản, ung nhọt do nhiệt độ.
 
 Trị gan mật kết sỏi, sỏi thận, tiểu buốt, hoàng đản.
 
-CÁCH SỬ DỤNG: Kim Tiền Thảo
+**Cách sử dụng Kim Tiền Thảo**
 
-· Liều dùng: 20 - 40g mỗi ngày, uống liên tục, không có độc hại.
+Liều dùng: 20 - 40g mỗi ngày, uống liên tục, không có độc hại.
 
-Chú ý: Người tỳ hư, tiêu chảy không nên dùng
-
-Dùng kim tiền thảo kết hợp để chữa bệnh sỏi thận
+Chú ý: Người tỳ hư, tiêu chảy không nên dùng.
 
 Cây kim tiền thảo thường kết hợp với cây rau mèo 50g﻿ dứa dại 50g kê nội kim 10g trái dứa dại 50g hay còn gọi là trái dứa gai cho tác dụng hiệu quả hơn.
-
-Bài thuốc đặc trị sỏi thận hạy liên hệ với chúng tôi để được tư vấn
