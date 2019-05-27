@@ -7,7 +7,6 @@ image: du-duc.jpg
 custom_excerpt: Hoa đu đủ đực chữa bệnh ung thư hay thường gọi bông đu đủ đực.
 ---
 
-Hoa đu đủ đực thường được thu hoạch trong rừng mới có số lượng, đu đủ đực người ta không trồng mà tự nhiên cây đang có quả do một nguyên nhân nào đó cây không ra quả mà ra nhiều hoa đực một lúc
 
 Đu Đủ Đực chữa bệnh ung thư, sỏi thận, chữa ho được nhiều người sử dụng nhưng hoa đu đủ đực thì có giới hạn.
 
@@ -17,13 +16,11 @@ Cây Đu Đủ thường được trồng tại nhà hay mọc hoang trên đồ
 
 Tất cả các bộ phận của cây đu đủ người ta có thể dùng làm thuốc tùy theo mục đích sử dụng, một số bệnh nhân thường dùng lá để hỗ trợ bệnh ung bướu.
 
-Trong tất cả các bộ phận của cây đu đủ thì hoa của cây đu đủ đực là chứa nhiều dược tính nhất ( đu đủ không ra trái ).
+Trong tất cả các bộ phận của cây đu đủ thì hoa của cây đu đủ đực là chứa nhiều dược tính nhất (đu đủ không ra trái).
 
 Hoa Đu Đủ Đực được nhiều người dân dùng để chữa ho cho trẻ nhỏ, viêm họng, hoa đu đủ đực được các nhà khoa học nghiên cứ có tác dụng ức chế tế bào ung bướu đặc biệt là bướu tuyến vú, u xơ tuyến tiền liệt và các loại ung bướu khác.
 
 Bông Đu Đủ Đực thường dùng cho các bệnh nhân ung bướu cả trước và sau khi phẫu thuật hoặc xạ trị.
-
-Bông đu đu đực và Nụ cây đu đủ đực được phơi khô 100% không có cọng
 
 Hoa Đu Đủ Đực liều dùng 30g - 50g đổ khoảng 2 lít nước sắc kỹ trong 30 phút cho ra hết chất sau đó dùng như nước trà, kết hợp với những thảo dược khác cho công dụng tốt hơn.
 
@@ -69,7 +66,7 @@ Hoa đu đủ đực có thể dùng tươi hoặc dùng ở dạng khô.
 
 **Cách dùng Hoa đu đủ tươi**
 
-Hoa đủ đủ tươi thường được dùng làm rau để sào nấu ăn hàng ngày. Hoa đu đủ đực thường sào với lòng ngan, lòng gà ăn rất thích, món ăn có vị đắng nhẹ (Rất tốt cho sức khỏe nhất là bệnh nhân Ung thư)
+Hoa đủ đủ tươi thường được dùng làm rau để sào nấu ăn hàng ngày. Hoa đu đủ đực thường sào với lòng ngan, lòng gà ăn rất thích, món ăn có vị đắng nhẹ (Rất tốt cho sức khỏe nhất là bệnh nhân Ung thư).
 
 **Cách dùng hoa đu đủ khô**
 
@@ -77,7 +74,7 @@ Dùng hoa đu đủ đực làm thuốc hỗ trợ điều trị Ung thư
 
 Hoa đu đủ khô 15g (Tươi 40g), cây xạ đen khô 40g sắc nước uống hàng ngày.
 
-##Dùng hoa đu đủ đực chữa ho
+**Dùng hoa đu đủ đực chữa ho**
 
 Hoa đu đủ đực tươi 30g, củ mạch môn khô 10g, lá húng tranh 15g, vỏ quýt 10g (Các vị đem thái nhỏ, hấp chín để ăn) mỗi ngày làm 1 lần, làm liên tục 3-4 lần là khỏi ho.
 
