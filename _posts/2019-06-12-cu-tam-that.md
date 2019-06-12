@@ -9,7 +9,7 @@ custom_excerpt: Củ tam thất thường được sử dụng để cầm máu,
 
 Củ tam thất hay người ta gọi là sâm tam thất cây thuốc được sử dụng rộng rãi trong nhân dân, tam thất là loại dược liệu rất quý có tác dụng cầm máu tốt cho phụ nữ sau sinh phòng tránh hậu sản, củ tam thất sử dụng tiềm gà, dùng phòng tránh bệnh rất tốt.
 
-Củ tam thất chữa bệnh hiệu quả,  Tam thất Tên thuốc: Radix Notoginsing.
+**Tam thất Tên thuốc:** Radix Notoginsing.
 
 Tam Thất Bắc Trồng ở Hoàng liên Sơn, trung quốc,  xét về dược tính thì tam thất trung quốc tốt hơn tam thất hoàng liên sơn, nhiều người sợ bị tẩm thuốc điều này quý khách hoàn toàn yên tâm bởi hàng nguyên củ không sợ bị tẩm thuốc.
 
