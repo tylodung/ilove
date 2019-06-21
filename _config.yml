@@ -1,7 +1,7 @@
 # Site settings
-title: "Thảo Dược"
-url-title: "Thảo Dược"
-description: "Đoàn Bình"
+title: "Thầy Lang"
+url-title: "Thầy Lang"
+description: "Đoàn Bình và y dược"
 paginate: 100
 url: "https://iloves.club"
 permalink: /:year/:month/:title/

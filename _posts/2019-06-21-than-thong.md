@@ -1,13 +1,11 @@
 ---
 published: true
 hidden: false
-title: Cây thần thông
+title: Cây thần thông chữa đau vai gáy, mất ngủ
 twitter_large: true
 image: cay-than-thong.jpg
 custom_excerpt: Dây thần thông dùng chữa đau vai gáy, mất ngủ, đau nhức xương khớp hiệu quả.
 ---
-
-Cây thần thông được sử dụng chữa bệnh đau đầu, mất ngủ kinh niên cây được thu  hái trong rừng về chặt nhỏ phơi khô để sử dụng dần, địa chỉ bán dây thần thông
 
 Cây thần thông là dạng dây leo mọc hoang thường sống bán vào những cây khác bộ phận dùng làm thuốc chủ yếu là thân chứ không phái lá, lá của cây rất ít, một cây dài khoảng 10 mét thì có khoảng 5 -7 lá ở phần ngọn vì vậy tìm lá thần thống sẽ không có hàng.
 
@@ -20,7 +18,7 @@ Người ta dùng thân cây của cây thần nông, tươi hoặc khô. Đây 
  
 ** Mô tả cây**
 
- Ký ninh là một loại dây leo, thân rất xù xì, màu nâu nhạt, sống dai, dài tới 6-7m hay hơn. Thân non nhẵn, thân già màu nâu xám, rất xù xì nom như da cóc. Lá hình trái xoan ngược - dạng tim hay hình thuôn, mọc so le, mép nguyên, dài 8-12cm, rộng 5-6cm, có cuống ngắn, gầy. Hoa tập hợp thành 1-2 chùm mọc ở nách những lá đã rụng. Quả hình trứng, khi chín có màu vàng rồi đỏ, dài chừng 12 mm, có cơm quả dày, chứa 1 hạt màu đen.
+Ký ninh là một loại dây leo, thân rất xù xì, màu nâu nhạt, sống dai, dài tới 6-7m hay hơn. Thân non nhẵn, thân già màu nâu xám, rất xù xì nom như da cóc. Lá hình trái xoan ngược - dạng tim hay hình thuôn, mọc so le, mép nguyên, dài 8-12cm, rộng 5-6cm, có cuống ngắn, gầy. Hoa tập hợp thành 1-2 chùm mọc ở nách những lá đã rụng. Quả hình trứng, khi chín có màu vàng rồi đỏ, dài chừng 12 mm, có cơm quả dày, chứa 1 hạt màu đen.
  
 ** Phân bố thu hái và chế biến**
 
@@ -39,7 +37,7 @@ Dây chứa một alcaloid là palmatin, hàm lượng 0,10% trọng lượng kh
 
 Tuy gọi là dây ký ninh, nhưng trong nhiều phần hoá học đã giới thiệu không có chất quinin. Mặc dù trong nhân dân nước ta cũng như một số nước khác, người ta vẫn dùng cây ký ninh trị sốt rét, trị sốt và làm thuốc bổ giúp sự tiêu hoá như cây canhkina.
 
-Dùng dưới hình thức cao, bột, viên
+Dùng dưới hình thức cao, bột, viên.
 
 Liều dùng chữa sổ rét. Ngày uống 0,5-1,5g cao dưới hình thức thuốc viên.
 
@@ -66,8 +64,6 @@ Chữa mất ngủ
 Chữa đau nhức, đau vai gấy
 
 Hỗ trợ ung thư, chống kháng khuẩn, chống oxi hóa...
-
-Dối tượng thường sử dụng dây thần thông chữa bệnh
 
 Dây thân thông được nhiều người sử dụng nhất là chữa mất ngủ và bệnh đau nhức, người ta thường dùng 4-12g sắc nước uống, sử dụng trong thời gian 15 ngày có hiệu quả
 
